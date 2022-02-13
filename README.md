@@ -1,0 +1,2 @@
+# umaraliyevasliddin-imtixon
+imtixonniki
